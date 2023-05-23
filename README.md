@@ -6,3 +6,9 @@ https://share.kz/gUk
 
 
 https://pynative.com/python/quizzes/
+
+
+
+https://share.kz/giz
+
+https://share.kz/gU4
