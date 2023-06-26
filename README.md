@@ -12,3 +12,11 @@ https://share.kz/gX5
 aituuniversity@gmail.com
 qwerty2019
 
+
+https://share.kz/gejr
+
+https://share.kz/ghhR
+
+
+https://share.kz/gjY2
+https://share.kz/gnWr
