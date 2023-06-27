@@ -13,6 +13,14 @@ aituuniversity@gmail.com
 qwerty2019
 
 
+-----------------------------------
+https://share.kz/gfND
+
+
+
+https://share.kz/giM4
+
+------------------------------
 https://share.kz/gejr
 
 
